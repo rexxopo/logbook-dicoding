@@ -10,3 +10,7 @@ On the 19th, I discussed 2 mandatory soft skills, the first one is unlocking you
 Logbook tanggal 20
 --
 bismillah
+
+Logbook tanggal 23
+--
+semoga kuat
