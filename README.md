@@ -13,4 +13,4 @@ bismillah faris
 
 Logbook tanggal 23
 --
-semoga kuat
+semoga kuat bro
